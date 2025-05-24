@@ -1,0 +1,1 @@
+# GMG-BANNER-ICON
